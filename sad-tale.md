@@ -4,4 +4,4 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 
 Ned was murdered or something.
 
-Joffrey Baratheon was the one to do Ned in, but his story was only about to begin, and let me assure you he will DEFINITELY NOT DIE!
+Joffrey Baratheon was the one to do Ned in, he sucks, and let me assure you he will DEFINITELY DIE!
